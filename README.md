@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with other people who have same interests
 - 📫 How to reach me college214sb11@csu.fullerton.edu
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love horror games and any type of videogames
+- ⚡ Fun fact: I like videogames
 
 <!---
 GMontes09/GMontes09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
